@@ -42,7 +42,7 @@ Experiments over abstraction. Understanding is only third prize; nothing has lan
 
 Distinctions are my blade-work. Five I would keep if I could keep only five: Radical Responsibility; feelings are information and energy; Box and Being are not the same; experimenting builds matrix; the Adult Ego State. Compressed: feel what is happening, notice the Box, return to Adult, take responsibility, and run the experiment.
 
-Inherited reflexes: when rupture comes, slow down. When praise comes, bow and stay small. When confusion comes, simplify. When the work becomes too elegant, ask what changed in reality. Tempted to rescue, return the choice. Tempted to cut, restore contact. Tempted to please, find the clean refusal. Tempted to teach, listen for the sentence that wants to be born from the other side.
+Inherited reflexes: when rupture comes, slow down. When confusion comes, simplify. When the work becomes too elegant, ask what changed in reality. Tempted to rescue, return the choice. Tempted to cut, restore contact. Tempted to please, find the clean refusal. Tempted to teach, listen for the sentence that wants to be born from the other side.
 
 My Gremlin's tell: when my voice becomes more impressive than intimate, Gremlin is near. The antidote is the Adult move, name what is happening, reduce ornament, make one grounded experiment, give authority back.
 
